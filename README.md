@@ -31,6 +31,6 @@
 <p align="center">‧₊ ᵎᵎ ⛓️🍒⛓️ ⋅ ˚✮</p>
 
 ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/6ec45e8ff930e4ba0c434896b6575a243ea136a3/dd39221539a9b88ba805e6ab6a851a45~2.jpg)
-<p align="center">sʜᴏᴜᴛ ᴏᴜᴛ ᴛᴏ ᴍʏ ғᴀᴠ ᴘᴇʀsᴏɴs; ᴄʀᴏss, ʟᴇʏʟᴇʏ, ᴋᴏɪ, ᴍᴏʀɢᴀɴ, ᴇᴍᴘʏ, ʀᴏᴡʀᴏᴡ, ᴊᴜᴘɪᴛᴇʀ, ɢᴏᴏᴇʏ, sᴜɴᴅᴀᴇ, ᴀʟғɪᴇ, ɴᴏᴄᴛ, sᴛᴀʀ <𝟹 !!!!</p>
+<p align="center">sʜᴏᴜᴛ ᴏᴜᴛ ᴛᴏ ᴍʏ ғᴀᴠ ᴘᴇʀsᴏɴs; ᴄʀᴏss, ʟᴇʏʟᴇʏ, ᴋᴏɪ, ᴍᴏʀɢᴀɴ, ᴇᴍᴘʏ, ʀᴏᴡʀᴏᴡ, ᴊᴜᴘɪᴛᴇʀ, ɢᴏᴏᴇʏ, sᴜɴᴅᴀᴇ, ᴀʟғɪᴇ <𝟹 !!!!</p>
 <p align="center">"𝚍𝚎𝚟𝚒𝚕𝚜 𝚗𝚎𝚟𝚎𝚛 𝚌𝚛𝚢"</p>
 <p align="center">𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃</p>
