@@ -21,7 +21,7 @@
 * `𝒊 𝒐𝒏𝒍𝒚 𝒈𝒊𝒗𝒊𝒏𝒈 𝒑𝒕 𝒔𝒌𝒊𝒏𝒔 𝒈𝒊𝒇𝒕 𝒕𝒐 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 <𝟑
 * `𝒃𝒆 𝒏𝒊𝒄𝒆 𝒂𝒏𝒅 𝒊'𝒍𝒍 𝒅𝒐 𝒕𝒉𝒆 𝒔𝒂𝒎𝒆
 
-![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/34604f72d6f748f615a534df673e990ffbab69c1/asset%202.jpg)
+![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/7e1d7acc7116e0e460c3cfe4d29e30368d4f7345/380402532b4b8140366a144eaf1328bf~2.jpg)
 
 <p align="center">"𝓘 𝓬𝓾𝓻𝓼𝓮 𝓶𝔂 𝓼𝓽𝓪𝓻𝓼 𝓲𝓷 𝓫𝓲𝓽𝓽𝓮𝓻 𝓰𝓻𝓲𝓮𝓯 𝓪𝓷𝓭 𝔀𝓸𝓮, 𝓣𝓱𝓪𝓽 𝓶𝓪𝓭𝓮 𝓶𝔂 𝓵𝓸𝓿𝓮 𝓼𝓸 𝓱𝓲𝓰𝓱 𝓪𝓷𝓭 𝓶𝓮 𝓼𝓸 𝓵𝓸𝔀."</p>
 
