@@ -1,6 +1,6 @@
 # 𝙨𝙤 𝙞𝙩 𝙞𝙨 𝙬𝙧𝙞𝙩𝙩𝙚𝙣
 
-<p align="center">"ℳ𝒶𝓎 𝓃ℴ𝓉 𝓂𝓎 𝒻𝓁ℯ𝓈𝒽 𝒻𝒶𝒾𝓁 ℴ𝓃 𝓂ℯ."</p>
+<p align="center">"𝑺𝒐...𝒅𝒆𝒗𝒊𝒍𝒔 𝒄𝒓𝒚, 𝒉𝒖𝒉? 𝑳𝒆𝒕'𝒔 𝒉𝒆𝒂𝒓 𝒘𝒉𝒂𝒕 𝒕𝒉𝒂𝒕 𝑺𝑶𝑼𝑵𝑫𝑺 𝑳𝑰𝑲𝑬!!"</p>
 
 ![Alt text](https://github.com/CrimsonCloud-V/running-out-of-time/blob/d18454508d5c129ec7ab705b55121d85adedec33/8d5c09ba559328b9a406663fedee15eb.jpg)
 
@@ -23,8 +23,8 @@
 * `𝒃𝒆 𝒏𝒊𝒄𝒆 𝒂𝒏𝒅 𝒊'𝒍𝒍 𝒅𝒐 𝒕𝒉𝒆 𝒔𝒂𝒎𝒆
 
 <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌</p>
-<p align="center">"𝕽𝖊𝖆𝖕 𝖜𝖍𝖆𝖙 𝖞𝖔𝖚 𝖘𝖔𝖜."</p>
+<p align="center">"𝚰'ꭑ 𝗍ɦ𝖾 ⱺ𐓣𝖾.. 𝐖𝚰𝐓𝐇 𝐏𝐎𝐖𝐄𝐑!"</p>
 <p align="center">‧₊ ᵎᵎ ☄️🩵☄️ ⋅ ˚✮</p>
 <p align="center">sʜᴏᴜᴛ ᴏᴜᴛ ᴛᴏ ᴍʏ ғᴀᴠ ᴘᴇʀsᴏɴs; ᴄʀᴏss, ʟᴇʏʟᴇʏ, ᴋᴏɪ, ᴍᴏʀɢᴀɴ, ᴇᴍᴘʏ, ʀᴏᴡʀᴏᴡ, ᴊᴜᴘɪᴛᴇʀ, ɢᴏᴏᴇʏ, sᴜɴᴅᴀᴇ, ᴀʟғɪᴇ <𝟹 !!!!</p>
-<p align="center">"ʟɪᴛᴛʟᴇ ᴡᴀɴᴅᴇʀᴇʀ, ʜɪᴇ ᴛʜᴇᴇ ʜᴏᴍᴇ!"</p>
+<p align="center">"ɪs ᴛʜᴀᴛ ᴀʟʟ ʏᴏᴜ ɢᴏᴛ?"</p>
 <p align="center">𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃</p>
