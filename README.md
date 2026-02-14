@@ -22,16 +22,9 @@
 * `𝒊 𝒐𝒏𝒍𝒚 𝒈𝒊𝒗𝒊𝒏𝒈 𝒑𝒕 𝒔𝒌𝒊𝒏𝒔 𝒈𝒊𝒇𝒕 𝒕𝒐 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 <𝟑
 * `𝒃𝒆 𝒏𝒊𝒄𝒆 𝒂𝒏𝒅 𝒊'𝒍𝒍 𝒅𝒐 𝒕𝒉𝒆 𝒔𝒂𝒎𝒆
 
-![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/7e1d7acc7116e0e460c3cfe4d29e30368d4f7345/380402532b4b8140366a144eaf1328bf~2.jpg)
-
-<p align="center">"𝓘 𝓬𝓾𝓻𝓼𝓮 𝓶𝔂 𝓼𝓽𝓪𝓻𝓼 𝓲𝓷 𝓫𝓲𝓽𝓽𝓮𝓻 𝓰𝓻𝓲𝓮𝓯 𝓪𝓷𝓭 𝔀𝓸𝓮, 𝓣𝓱𝓪𝓽 𝓶𝓪𝓭𝓮 𝓶𝔂 𝓵𝓸𝓿𝓮 𝓼𝓸 𝓱𝓲𝓰𝓱 𝓪𝓷𝓭 𝓶𝓮 𝓼𝓸 𝓵𝓸𝔀."</p>
-
-![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/b3ea7d988794d833471a2732e7a433a2af33e571/94c20473cd5ae642bce12918ae2a67de~2.jpg)
-
+<p align="center">﹌﹌﹌﹌﹌﹌﹌﹌</p>
 <p align="center">"𝕽𝖊𝖆𝖕 𝖜𝖍𝖆𝖙 𝖞𝖔𝖚 𝖘𝖔𝖜."</p>
 <p align="center">‧₊ ᵎᵎ ⛓️🖤⛓️ ⋅ ˚✮</p>
-
-![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/19ec5b5c6dbad93dd9d62df313841fb46c5134ad/85b069d4a6f1c5a979daa29d99bcdf12~2.jpg)
 <p align="center">sʜᴏᴜᴛ ᴏᴜᴛ ᴛᴏ ᴍʏ ғᴀᴠ ᴘᴇʀsᴏɴs; ᴄʀᴏss, ʟᴇʏʟᴇʏ, ᴋᴏɪ, ᴍᴏʀɢᴀɴ, ᴇᴍᴘʏ, ʀᴏᴡʀᴏᴡ, ᴊᴜᴘɪᴛᴇʀ, ɢᴏᴏᴇʏ, sᴜɴᴅᴀᴇ, ᴀʟғɪᴇ <𝟹 !!!!</p>
 <p align="center">"ʟɪᴛᴛʟᴇ ᴡᴀɴᴅᴇʀᴇʀ, ʜɪᴇ ᴛʜᴇᴇ ʜᴏᴍᴇ!"</p>
 <p align="center">𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃</p>
